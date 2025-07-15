@@ -97,6 +97,6 @@ Based on analysis, Bolly Movies should:
 Feel free to connect with me:  
 **Umesh Patil**  
 📧 upatil1932002@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/umesh-patil)
+🔗 [LinkedIn](https://www.linkedin.com/in/umesh-patil-7b0875210/)
 
 ---
